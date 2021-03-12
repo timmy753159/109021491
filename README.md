@@ -1,9 +1,6 @@
 # 109021491
 
 
+## aaa0312.py
 
-
-
-
-
-### 6ij6jhv6jhiv
+<img src= "picture.png" >
